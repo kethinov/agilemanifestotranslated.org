@@ -1,0 +1,1 @@
+# agilemanifestotranslated.org
